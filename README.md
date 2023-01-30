@@ -1,2 +1,2 @@
 # QuillbotCracked
-Quillbot for FREE yesyes real 100% 2023
+Quillbot extension to get it for FREE yesyes real 100% 2023 
